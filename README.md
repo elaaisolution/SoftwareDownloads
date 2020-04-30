@@ -1,7 +1,7 @@
 # SoftwareDownloads
 You can download here all types of software , entertainment , games , development and programming by single click http://elaanet.tk
 
-# Catagory of Downloads and available softwares
+# Category of Downloads and Available Softwares
 
 # ANDRIOD
      
